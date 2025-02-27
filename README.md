@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @radizzzzzzz
 - 👀 I’m interested in VARIO
 - 🌱 I’m currently learning JAVA
-- 💞️ I’m looking to collaborate on COUPLE
-- 📫 How to reach me BE YOUR SELF
+- 💞️ I’m looking to collaborate on ROADRACE
+- 📫 How to reach me BRING YOUR MOTORCYCLE AND RACE WITH ME !!
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I DON'T HAVE MONEY :)
 
